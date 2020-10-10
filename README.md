@@ -1,0 +1,1 @@
+# Compresia imaginilor & Recunoasterea faciala
